@@ -20,9 +20,9 @@
 <p align="center">
 ^______________________^
   </p> 
-⠀<p align="center"> <a href=https://scarypuposcar.atabook.org/>ATA ^_^</a>
-  <p align="center">
-ᴍᴏꜱᴛʟʏ ᴏꜰꜰᴛᴀʙ
+⠀<p align="center"> <a href=https://scarypuposcar.atabook.org/>ATA ^_^</a> ⠀<p align="center"> <a href=https://https://www.omfgdogs.com//>dawgs.. </a>
+
+   <p align="center"> ᴍᴏꜱᴛʟʏ ᴏꜰꜰᴛᴀʙ
   </p>
   <p align="center">
   <img src="https://64.media.tumblr.com/246fd6188c694de33b28b5a8534d894f/04cf1c9b507ba7ad-ac/s500x750/29962790ca53cfdd128a547d45a04b86716a8a11.pnj" />
