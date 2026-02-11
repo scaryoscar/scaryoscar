@@ -14,7 +14,7 @@
 
 
 <p align="center">
- $${\color{#3eb8f0}gay.{}}$$
+ $${\color{green}gay.{}}$$
 </p>
 
 <p align="center">
