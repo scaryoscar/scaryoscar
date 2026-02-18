@@ -44,3 +44,4 @@ i roam around as . . .
 <p align="center">  <img src="https://64.media.tumblr.com/658b413d52316269da54ea57257a63aa/f4cf8c3094b450b3-af/s250x400/a688dd170543df7906f42021104befdbf0bd4c4a.gifv" />
 <p align="center">  <img src="https://64.media.tumblr.com/b79697f5935f2c23b9cbdb6936ff0bed/f4cf8c3094b450b3-03/s250x400/ba41772ca26634fc829dbab90fbbbdadea9279e0.gifv" />
 <p align="center">  <img src="https://64.media.tumblr.com/432da41508cd544e1bf0006507ce5835/f4cf8c3094b450b3-cf/s250x400/c0ce8efaae142b57bed2eefdc4d04506f38ae1e9.gifv" />
+this does not include uniforms -> SMM , POTC
