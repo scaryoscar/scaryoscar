@@ -6,7 +6,7 @@
   <p align="center">
   <img src="https://64.media.tumblr.com/5d68bc93d4a476448a56112b8b28a470/ae7c32f564681d65-4b/s2048x3072/d436e291f6d9dcd653ccc27b8d048b53ccbf91a3.pnj" />
 <p align="center">
- hi im Lim!! or Oscar and Eddie
+ hi im Lim!! or Robbie or Oscar 
 </p>
 
 <p align="center">
