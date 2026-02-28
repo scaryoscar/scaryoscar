@@ -33,9 +33,11 @@
 <p align="center">
 i roam around as . . .
 </p>
+<p align="center"> <img src="https://64.media.tumblr.com/ab6f8f959f9db731a4c93caa477897b1/634f7f13000dadb2-b4/s250x400/7f69a7d5f7fcf74eb8c7694eeace5c925314d2ee.gifv" />
 <p align="center">  <img src="https://64.media.tumblr.com/06812ea13292179324d2145e8c5c5375/3191a3557242eff3-ce/s250x400/aa5adb5260c04682c0cdd942dc98258174abf7c6.gifv" /> 
    <p align="center">  <img src="https://64.media.tumblr.com/f8dbc9aee69bff4c29c7c9a633fc45a6/152beb6414b2b4c8-38/s250x400/f58ced0d2d388b1afe69e01fb5ba245c30d5f24d.gifv" />
       <p align="center">  <img src="https://64.media.tumblr.com/bc96d08caaaf72176908dda62699d224/152beb6414b2b4c8-f0/s250x400/e32e16a830a855c5047b062716c49f2838522b4c.gifv" />
+
 <p align="center">  <img src="https://64.media.tumblr.com/9e2edd2b3271eedaacb89c3937fffb96/f4cf8c3094b450b3-38/s250x400/9111cf943d541d80b62ea35e395d52a4ae0f9ebf.gifv" />
 <p align="center">  <img src="https://64.media.tumblr.com/af871be769a0f96e82ada07bc6a41dd0/f4cf8c3094b450b3-e1/s250x400/0bc17598da2eb07460745000c179501f68869b33.gifv" />
 <p align="center">  <img src="https://64.media.tumblr.com/5fd775ecb3d8ef462dc38ab1d6b33f93/f4cf8c3094b450b3-bc/s250x400/ba17f765f55ccb02e558f283402e6e41726f1e54.gifv" />
